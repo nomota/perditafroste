@@ -5,6 +5,14 @@ La eksterteranoj evoluigis sian sciencon tre alte sed ilia planedo havis sian li
 
 Cxi teamo estas unu el la lastaj provoj. Ilia planedo havas nenian provizon plie donanta energion por subteni aktivan civilizon, kaj ili decidis vintr-dormigi sian tutan civilizon, kaj emisiis la lastan esplor-teamon per la laste havebla energio.
 
-Cxi lasta teamo nomis sin antoj de espero.
+Cxi lasta teamo nomis sin Antoj de Espero.
 
 Per plej komplika scienco, ili kaptis tre malpezan signalon emisiinta el la plej neantendita direkto - cxirkaux la rimo de la malgranda galaksio.
+
+La lasta teamo Antoj de Espero sed la problemo estas la terura distanco gxis La malfort-signala loko kaj ili mem devis vintr-dormigi sian sxipon..
+
+
+kaj io interesa okazis ...
+
+
+Kaj finfine la eksterteranoj povis trovi solvon kaj komensis reirvojagxon al sia propra civilizo.
